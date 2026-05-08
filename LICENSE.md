@@ -1,4 +1,4 @@
-
+Obsidian for macOS secure Macro - tags and task automation offers the most advanced Obsidian for macOS macro, with tags and task automation. Ideal for professionals.
 
 
 
